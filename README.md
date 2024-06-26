@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AleenaJacksonNYC
 - 👀 I’m interested in making an impact and leaving the world just a little better 
 - 🌱 I’m currently learning more about AI
-- 📫 How to reach me aleenajackson@zohomail.com
+- 📫 How to reach me aleenajackson96@proton.me
 - 😄 Pronouns: She/Her
 
 
